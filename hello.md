@@ -1,0 +1,1 @@
+Hello Professor, I am glad this class is offered this quarter. I was unable to continue with it last quarter. 
